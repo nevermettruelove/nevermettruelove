@@ -11,7 +11,7 @@
 > Discord: cz0snus
 - 😄 Pronouns: ac/dc
 - ⚡ Fun fact: I have girlfriend ❤️
-- 
+
 <!--
 **nevermettruelove/nevermettruelove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
