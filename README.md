@@ -18,7 +18,7 @@
 
 ## 💭 About me:
 I'm 16yo polish boy who's trying to change the gaming world. I have a lot of ideas but i dont know how can i realize them.
-I have good music taste 🎵 and i tried to make a music. (Here is the one)[https://www.youtube.com/watch?v=ufdv1XvS8cM&ab_channel=MłodyCzosnek]
+I have good music taste 🎵 and i tried to make a music. [Here is the one](https://www.youtube.com/watch?v=ufdv1XvS8cM&ab_channel=MłodyCzosnek)
 <!--
 **nevermettruelove/nevermettruelove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
