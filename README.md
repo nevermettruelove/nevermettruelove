@@ -4,7 +4,7 @@
 > I'd love to introduce myself in this `README.md` file ;)
 
 ## 🌷 So let's get started:
-- 🔭 I’m currently working on DarkieBOT - full customization discord bot
+- 🔭 I’m currently working on Styz - Future of Discord Bots
 - 🌱 I’m currently learning how to get more rizz
 - 💬 Ask me about everything i'll asnwer as good as i can
 - 📫 How to reach me:
