@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning how to get more rizz
 - 💬 Ask me about everything i'll asnwer as good as i can
 - 📫 How to reach me:
-> Discord: cz0snus
+> Discord: cz0snus 
 > Instagram: cz0snus
 
 - 😄 Pronouns: ac/dc
