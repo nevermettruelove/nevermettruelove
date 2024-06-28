@@ -11,8 +11,8 @@
   - Discord: cz0snus 
   - Instagram: cz0snus
 <p>&nbsp;</p>  
-- 😄 Pronouns: ac/dc 
-- ⚡ Fun fact: I have girlfriend ❤️
+* 😄 Pronouns: ac/dc 
+* ⚡ Fun fact: I have girlfriend ❤️
 
 ## 🛡️ My skills:
 - 💻 I'm beggining software developer
