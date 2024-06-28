@@ -10,8 +10,8 @@
 - 📫 How to reach me:
   - Discord: cz0snus 
   - Instagram: cz0snus
-
-
+_ _
+_ _
 - 😄 Pronouns: ac/dc
 - ⚡ Fun fact: I have girlfriend ❤️
 
