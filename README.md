@@ -11,7 +11,6 @@
   - Discord: cz0snus 
   - Instagram: cz0snus
 <p>&nbsp;</p> 
-
 - 😄 Pronouns: ac/dc
 - ⚡ Fun fact: I have girlfriend ❤️
 
